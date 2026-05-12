@@ -1,4 +1,4 @@
-# 
+# instant geckoterminal sniper bot | priority-gas-auctions + meme-coin-scanning offers the most advanced geckoterminal sniper bot, with priority-gas-auctions and meme-coin-scanning.
 
 
 
